@@ -1,2 +1,2 @@
 # hello-world
-First Git Hub Public Repository
+I believe in Live & Let live. Everyone is unique & special. 
